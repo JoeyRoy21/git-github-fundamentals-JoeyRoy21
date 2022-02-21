@@ -1,0 +1,1 @@
+I was able to lean about how a pull reuest is created a long what a markdown file is and how to write a markdown file which is MARKDOWN.md. When it comes to pull request it helps to show changes and you can ask for feedback from your team

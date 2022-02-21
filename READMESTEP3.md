@@ -1,0 +1,1 @@
+My name is Jazmin and I am a 4 year computer science major and I am also minoring in cybersecurity. At this moment I want to learn more about cybersecurity and the aerospace industry. I want to see how programming can play a part in it just to see if I could maybe contribute in some kind of way. Right now I am doing search that is dealing with interdisciplinary research
